@@ -7,7 +7,7 @@ I applied, won a scholarship, and this is the app that I submitted.
 
 It's simple, and even a bit cheesey, but it did help me get to California for an awesome week at WWDC.
 
-There may be a few typos, the application deadline fell on finals week, and I literally submited my 
+There may be a few typos, the application deadline fell on finals week, and I literally submitted my 
 application minutes before the deadline.
 
 Some Details
